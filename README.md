@@ -28,3 +28,5 @@
 ![스크린샷_7-5-2024_155121_](https://github.com/gnjfgnjf/tire_image/assets/156265958/24d609b7-82ce-436c-8541-e9fb0156f73d)
 ![스크린샷_7-5-2024_155131_](https://github.com/gnjfgnjf/tire_image/assets/156265958/cc1fa799-bf98-460a-8786-afb4b6ae05ef)
 ![스크린샷_7-5-2024_155140_](https://github.com/gnjfgnjf/tire_image/assets/156265958/d5627086-59cb-49c9-9003-0701dbb53c97)
+
+![Untitled (12)](https://github.com/gnjfgnjf/tire_image/assets/156265958/2b7cff04-5369-4403-ac01-e83ad2c45b05)
